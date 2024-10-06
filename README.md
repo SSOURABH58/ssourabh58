@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">Nice Seeing you Hear, Consider Giving a Follow😅 ( 🤫 I will Follow Back).</p>
+<p align="left">Nice Seeing you Hear, Consider Giving a Follow😅 (🤫 I will Follow Back).</p>
 
 ###
 
